@@ -16,7 +16,7 @@ Welcome to my professional portfolio! Here, you'll find my **projects, skills, a
 
 ## 📫 Connect With Me
 - **GitHub:** [github.com/Vamshikrishna2525](https://github.com/Vamshikrishna2525)
-- **LinkedIn:** [linkedin.com/in/vamshi-krishna-yadagiri](#)
+- **LinkedIn:** [linkedin.com/in/vamshikrishna1108](https://www.linkedin.com/in/vamshikrishna1108/)
 - **Email:** [yadagirivamshikrishna3107@gmail.com](mailto:yadagirivamshikrishna3107@gmail.com)
 
 🚀 **Check out my work and feel free to connect!**
